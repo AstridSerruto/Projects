@@ -1,2 +1,2 @@
 # Projects
-New Projects
+New Projects, a diverse group
